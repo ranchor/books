@@ -541,4 +541,5 @@ By embracing Nonviolent Communication, individuals can contribute to a more comp
 
 ## References
 * https://www.youtube.com/playlist?list=PLTTgUW8_SSpehs6yj9gRUc9SJD8-zdfFw
+* https://srinathramakrishnan.wordpress.com/wp-content/uploads/2016/07/non-violent-communication-summary.pdf
 
